@@ -1,1 +1,3 @@
-// shuyerga script yozdim
+// shuyerga script yozdimdsfsdf
+sdfsds
+s

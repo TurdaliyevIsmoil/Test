@@ -1,0 +1,1 @@
+// shuyerga script yozdim
